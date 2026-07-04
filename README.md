@@ -1,5 +1,5 @@
 ​
-<p align="center"><img src="https://i.postimg.cc/SQZyggwd/Kris-battle-jiggle-ezgif-com-webp-to-gif-converter.gif" alt="me"/></br></p>
+<p align="center"><img src="https://i.postimg.cc/SQZyggwd/Kris-battle-jiggle-ezgif-com-webp-to-gif-converter.gif" alt="me"/><br/></p>
 <div align="center">
 
 [rentry♡](https://rentry.co/gurire) 𑄹 [straw](https://gurire.straw.page) 𑄹 [ata](https://nchay41.atabook.org/) 𑄹 [listo](https://listography.com/gurire96)
