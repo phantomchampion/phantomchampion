@@ -7,7 +7,7 @@
  ​ ​ ​ ​ ​  ​ ​ ​ ​ ​ ​ ​ ​  ​​sign ata + check links 4 info
 
   ​ ​
- ​ ​ ​ ​ ​ ​ ​  ​ ​    ​​​​​​​​ ​​ ​ ​​​​ ​  ​​​​​​​[rentry♡](https://rentry.co/gurire) 𑄹 [ata](https://nchay41.atabook.org/) 𑄹 [pt rentry](https://rentry.co/nchay41)
+ ​ ​ ​ ​ ​ ​ ​  ​ ​    ​​​​​​​​ ​​ ​ ​​​​ ​  ​​​​​​​ ​ ​ ​ ​ ​ ​ ​  ​ ​  [ata](https://nchay41.atabook.org/) 𑄹 [pt rentry](https://rentry.co/nchay41)
 
 </div>
  
