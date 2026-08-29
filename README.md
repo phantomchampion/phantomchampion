@@ -1,6 +1,6 @@
 <img align="left" src="https://i.postimg.cc/htrPWZDv/adasdd-YAYAYAYYAYSYYDAYSHDAGD.png" width="350">
 
-<div align="left">
+<div align="">
   
  ​ 
 
