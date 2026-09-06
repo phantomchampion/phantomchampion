@@ -13,7 +13,7 @@
 
  <div align="left">
    
-​​​<img align="center" src="https://i.postimg.cc/h4pG5hXf/53-sin-titulo-20260311181713.png"> <img align="center" src="https://i.postimg.cc/5yqXP5qn/86-sin-titulo-20260703180524.png"> <img align="center" src="https://i.postimg.cc/XNQvzXrZ/53-sin-titulo-20260311181708.png">
+​​​<img align="center" src="https://i.postimg.cc/h4pG5hXf/53-sin-titulo-20260311181713.png"> <img align="center" src="https://i.postimg.cc/5yqXP5qn/86-sin-titulo-20260703180524.png"> <img align="center" src="https://i.postimg.cc/vBkrzc8g/96-sin-titulo-20260906031454.png">
 
 ​​​<img align="center" src="https://64.media.tumblr.com/815e67f128e6934a5a46bb8561344a84/473928ea48888009-4b/s100x200/c5acacd5206cf81486b987b4d370da08d30e9536.pnj"> <img align="center" src="https://64.media.tumblr.com/4227323bff483185b2e3fc1d30ae6a63/d5fab46b0d00196f-82/s100x200/67d2592ff761c694b41bca59dba8d7e23e262e04.gifv"> <img align="center" src="https://i.postimg.cc/9XBZ6c1m/stamp-(2).png" width="98">
 
