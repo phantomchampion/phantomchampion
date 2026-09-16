@@ -1,17 +1,17 @@
 <img align="left" src="https://i.postimg.cc/htrPWZDv/adasdd-YAYAYAYYAYSYYDAYSHDAGD.png" width="350">
 
-<div align="">
+<div align="center">
   
  ​ 
 
- ​ ​ ​ ​ ​  ​ ​ ​ ​ ​ ​ ​ ​  ​​sign ata + check links 4 info
+​​sign ata + check links 4 info
 
   ​ ​
- ​ ​ ​ ​ ​ ​ ​  ​ ​    ​​​​​​​​ ​​ ​ ​​​​ ​  ​​​​​​​[rentry♡](https://rentry.co/gurire) 𑄹 [ata](https://nchay41.atabook.org/) 𑄹 [pt rentry](https://rentry.co/nchay41)
+[rentry♡](https://rentry.co/gurire) 𑄹 [ata](https://nchay41.atabook.org/) 𑄹 [pt rentry](https://rentry.co/nchay41)
 
 </div>
 
- <div align="left">
+ <div align="center">
    
 ​​​<img align="center" src="https://i.postimg.cc/h4pG5hXf/53-sin-titulo-20260311181713.png"> <img align="center" src="https://i.postimg.cc/5yqXP5qn/86-sin-titulo-20260703180524.png"> <img align="center" src="https://i.postimg.cc/vBkrzc8g/96-sin-titulo-20260906031454.png">
 
